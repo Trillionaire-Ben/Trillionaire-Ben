@@ -4,8 +4,9 @@ I'm also intrested in UI/UX development.
 
 If you'd like to reach me, below are me contact details:
 
-LinkedIn: https://www.linkedin.com/in/orumah-chinecherem
+LinkedIn: linkedin.com/in/orumah-chinecherem-9ba9a2186
+
+Mail: orumah.chinecherem@gmail.com
 
 Twitter: https://mobile.twitter.com/9Figures_Ben 
 
-Mobile: +2349136986735
